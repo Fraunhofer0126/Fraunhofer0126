@@ -27,12 +27,12 @@ I love **OpenSource Spirit** ❤️
 
 I like to Record and Share **Knowledge** ☁️
 
-*If you need any **help**, **ping me** with `cc @Xunzhuo`, I`m happy to help* 😃
+*If you need any **help**, **ping me** with `cc @Fraunhofer0126`, I`m happy to help* 😃
 
 
 ## Interests ❤️ 
 
-**Sleeping!**☁️
+**Sleeping**☁️
 
 
 ## My Repos are Below👇 ![Profile View Counter](https://komarev.com/ghpvc/?username=Fraunhofer0126)
