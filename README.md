@@ -19,20 +19,15 @@ Here are some ideas to get you started:
   
 <h1>Hi, I'm <a href="https://fraunhofer0126.github.io">Fraunhofer0126</a> <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> </h1>
   
-[Blog](https://www.pornhub.com)🏠  | [Zhihu](https://www.pornhub.com)📚
+[Blog](https://www.pornhub.com)🏠  | [Twitter](https://www.pornhub.com)📚
 
 School at **SCU**，Major in **AI**💻
 
-I love **OpenSource Spirit** ❤️
-
-I like to Record and Share **Knowledge** ☁️
-
 *If you need any **help**, **ping me** with `cc @Fraunhofer0126`, I`m happy to help* 😃
-
 
 ## Interests ❤️ 
 
-**BeatBox** B_BH KHHB HHBH KHHB BHBH KHHB HBBH KHHB
+**B_BH KHHB HHBH KHHB BHBH KHHB HBBH KHHB**
 
 
 ## My Repos are Below👇 ![Profile View Counter](https://komarev.com/ghpvc/?username=Fraunhofer0126)
